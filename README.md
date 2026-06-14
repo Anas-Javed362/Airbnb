@@ -70,7 +70,7 @@ The dashboard enables users to:
 ## Connect With Me
 
 LinkedIn:  
-https://www.linkedin.com/in/mohd-shoaib-alam-65b822350
+https://www.linkedin.com/in/anas-javed-khan-4019262b6
 
 ---
 
